@@ -17,6 +17,6 @@
 ## Contact Me
 - 📧 **Email**: anaeldagan@gmail.com
 - 🌍 **Location**: Israel
-- 💼 **LinkedIn**: [Anael's LinkedIn](https://linkedin.com/in/anaeldagan)
+- 💼 **LinkedIn**: [Anael's LinkedIn](https://www.linkedin.com/in/anael-dagan/)
 
 Feel free to connect with me and explore my projects! 🚀
